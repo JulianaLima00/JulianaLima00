@@ -3,15 +3,11 @@
 
 ╰─▸ ❝ @[Eu prometo, você não encontrará outra pessoa mais
 sincera do que eu neste mundo]
-🌟
 
+🌟**D**esigner iniciante, estudante de figma;
 
+🖥️ **P**rogramadora;
 
+🏮**F**un fact: Amo pokemons tipo fada !!
 
- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![Meu GIF](https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExbDh1YXlldnFsajcwNWg2d2dxcDdxOHRiNTlvcXNkY25sdGF4dGxsOSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/RiYQzYxlvN2ojU00gq/giphy.gif)
