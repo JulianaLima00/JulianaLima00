@@ -10,6 +10,4 @@ sincera do que eu neste mundo]
 
 🏮**F**un fact: Amo pokemons tipo fada !!
 
-<div align="center">
-  <img src="https://media.tenor.com/Wf_mU6hH_mYAAAAC/cyrene-cyrene-hsr.gif" width="300px">
-</div>
+<img width="498" height="281" alt="cyrene-cyrene-hsr" src="https://github.com/user-attachments/assets/ceb09e94-1663-4fb0-91d9-43cd49ea1f8f" />
