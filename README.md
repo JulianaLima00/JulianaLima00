@@ -10,4 +10,4 @@ sincera do que eu neste mundo]
 
 🏮**F**un fact: Amo pokemons tipo fada !!
 
-![Meu GIF](https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExbDh1YXlldnFsajcwNWg2d2dxcDdxOHRiNTlvcXNkY25sdGF4dGxsOSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/RiYQzYxlvN2ojU00gq/giphy.gif)
+![Meu GIF](https://tenor.com/pt-BR/view/cyrene-cyrene-hsr-cyrene-honkai-star-rail-cyrene-honkai-cyrene-kiss-gif-14294907187724423393)
