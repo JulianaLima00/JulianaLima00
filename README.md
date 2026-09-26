@@ -1,3 +1,5 @@
+<img width="480" height="250" alt="giphy" src="https://github.com/user-attachments/assets/969d0d12-11aa-4139-a756-2950c5959262" />
+
 **⋆.ೃ࿔*:･Estudante do curso Análise e Desenvolvimento de Sistemas**
 ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶༉‧₊˚.
 
@@ -12,4 +14,3 @@ sincera do que eu neste mundo]
 
 "**Porque** entrar em contato comigo"
 
-<img width="498" height="281" alt="cyrene-cyrene-hsr" src="https://github.com/user-attachments/assets/ceb09e94-1663-4fb0-91d9-43cd49ea1f8f" />
